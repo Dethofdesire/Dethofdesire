@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dethofdesire
-- 👀 I’m interested in ...refurshing furniture,  macrome design music,spirituality, tarot,quantum physics
-- 🌱 I’m currently learning ...cosmetology 
-- 💞️ I’m looking to collaborate on ...refurbished furniture, macrome design and selling 
+- 👀 I’m, 
+- 🌱 I’m currently learning 
+
 - 📫 How to reach me ...
 
 <!---
